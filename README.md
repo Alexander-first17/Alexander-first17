@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on...
 - 📫 You can reach me by mail: affanaprincealexandre@gmail.com & by phone:+2420067976674
 - 😄 Pronouns: Him,his
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: When i was a kid, i wanted to create and perform a game.
 
 <!---
 Alexander-first17/Alexander-first17 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
